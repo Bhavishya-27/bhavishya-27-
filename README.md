@@ -86,7 +86,7 @@ I'd love to connect with fellow developers, AI enthusiasts, and tech innovators!
 
 - 🔗 **LinkedIn:** [Bhavishya Devineni](https://www.linkedin.com/in/bhavishya-devineni-981806413?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 - 💻 **GitHub:** [@Bhavishya-27](https://github.com/Bhavishya-27)
-- 📧 **Email:** Feel free to reach out through LinkedIn!
+- 📧 **Email:** bhavishyadevineni513@gmail.com
 
 ## 🌟 Fun Fact
 
